@@ -1,3 +1,2 @@
 iamback
-ek din mar jayga chutye ki maut
-lalalalalalalla
+ek din mar jayga labra ki tarah
